@@ -18,4 +18,4 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+Estou gostando do curso, principalmente da grande quantidade de exemplos! :)
